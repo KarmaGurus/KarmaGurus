@@ -1,5 +1,5 @@
 - 👋 Namastey, I’m @KarmaGurus
-- 👀 I’m currently in Business Management Gaming and fields.
+- 👀 I’m currently in Business Management and Gaming fields.
 - 😎 You can talk to me anytime about Space, Cinema, Arts, Education, Science and Technology.
 - 📫 To reach me, DM here (https://twitter.com/KarmaGurus)
 
