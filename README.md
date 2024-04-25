@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @KarmaGurus
-- 👀 I’m interested in Gaming and Business Management
-- 🌱 I’m currently learning Coding and NFT
-- 📫 To reach me (https://twitter.com/KarmaGurus)
+- 👋 Namastey, I’m @KarmaGurus
+- 👀 I’m currently in Business Management Gaming and fields.
+- 😎 You can talk to me anytime about Space, Cinema, Arts, Education, Science and Technology.
+- 📫 To reach me, DM here (https://twitter.com/KarmaGurus)
 
 <!---
 KarmaGurus/KarmaGurus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
